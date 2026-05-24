@@ -37,8 +37,8 @@ fuck
 delete windows
 install windows poedatell
 
-<img src="Poedatell777">
-<img src="Poedatell666"> FUCKING SHIT THIS IS POEDATELL666 ITS SO FUCKING SCARY
+<img src="Poedatell777.jpg">
+<img src="Poedatell666.jpg"> FUCKING SHIT THIS IS POEDATELL666 ITS SO FUCKING SCARY
 
 
 ## Capturing Your Current DOTA 2 MMR
