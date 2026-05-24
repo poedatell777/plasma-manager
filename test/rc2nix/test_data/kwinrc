@@ -1,9 +1,0 @@
-[Desktops]
-Number=8
-Rows=2
-
-[Effect-overview]
-BorderActivate=9
-
-[Plugins]
-shakecursorEnabled=true
