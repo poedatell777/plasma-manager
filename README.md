@@ -35,10 +35,11 @@ fuck
 
 ## Make your day better
 delete windows
-install kali linux
-put da hood on ur head
-say fuck society to the psychologist in ur head
-well done
+install windows poedatell
+
+<img src="Poedatell777">
+<img src="Poedatell666"> FUCKING SHIT THIS IS POEDATELL666 ITS SO FUCKING SCARY
+
 
 ## Capturing Your Current DOTA 2 MMR
 
